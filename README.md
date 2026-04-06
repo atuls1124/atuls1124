@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @atuls1124
-- 💞️ I’m looking to collaborate on ...
+- 💞️AI ML DL DS
 - 📫 How to reach me ... atuls1796@gmail.com
 
 
